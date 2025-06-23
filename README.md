@@ -41,9 +41,9 @@
 
 点击访问：<a href="https://aw3-04.pages.dev/">影视视频</a>
 
-点击访问：<a href="https://hj-1295.pages.dev/">快捷入口</a>
+点击访问：<a href="https://hj-1295.pages.dev/">51视频网站快捷入口</a>
 
-点击访问：<a href="https://hj-1301.pages.dev/">访问入口</a>
+点击访问：<a href="https://hj-1301.pages.dev/">51视频网访问入口</a>
 
 主要内容：
 
